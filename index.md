@@ -1,9 +1,6 @@
 # 18 Tháng 4
 
-* Học tiếng việt + lịch sử lúc 14h30 [click link này để vào zoom](https://zoom.us/j/7546253240?pwd=Q29MczgyRjJGbDVZSkVJWk9BZTRUQT09)
-
-  Meeting ID: 754 625 3240
-  Password: 1234a5
+* Học tiếng việt + lịch sử lúc 14h30
 
   
 
