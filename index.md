@@ -13,3 +13,6 @@
 
 * [bài tập tin học](https://docs.google.com/forms/d/e/1FAIpQLSeKOLGIKqx3a-Jir-jLip-CzvNhGnma9LjXET7SiTJVIx_EYQ/viewform)
 
+* [bài tập tiếng anh](https://forms.gle/pad98zzhZvjT2JKCA)
+
+  
