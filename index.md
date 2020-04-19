@@ -1,3 +1,7 @@
+# 19 Tháng 4
+
+*  Học tiếng anh lúc 9h30  ID 577-444-6531 MK: 024689
+
 # 18 Tháng 4
 
 * Học tiếng việt + lịch sử lúc 14h30
